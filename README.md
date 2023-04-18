@@ -7,6 +7,8 @@ I've worked on some fields (most of them being privated project, failed or aband
 Recenty, I've decided to take a long (if not forever) break from coding and focuses on what I currently love instead : being a music producer, song writer and an artist. So this place is gonna be a little goofy....wooo
 
 it's getting too dark id like to go to sleep now bye bye xd
+
+no i cant go to sleep need to tell my discord : macfuns#4858 :3 love yall
 <!---
 macfun555/macfun555 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
