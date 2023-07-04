@@ -1,14 +1,12 @@
-Hi, macfun555 is one of my most used online name. Programming is one of my many different hobbies.
-I know Python, Java and a little small amount of C and C++
+Hi, macfun555 or macfuns is one of my most used online names. Programming is one of my many different hobbies.
+I know Python, Java, and a little small amount of C and C++
 
 I don't exactly know why am I writing a long about me message...gotta write this anyways lol
 
-I've worked on some fields (most of them being privated project, failed or abandoned) with many nice people.
-Recenty, I've decided to take a long (if not forever) break from coding and focuses on what I currently love instead : being a music producer, song writer and an artist. So this place is gonna be a little goofy....wooo
+I've worked in some fields (most of them being private projects, failed or abandoned) with many nice people.
+Recently, I've decided to take a long (if not forever) break from coding and focus on what I currently love instead: being a music producer, songwriter, and artist. So this place is gonna be a little goofy....wooo
 
-it's getting too dark id like to go to sleep now bye bye xd
-
-no i cant go to sleep need to tell my discord : macfuns#4858 :3 love yall
+my discord: macfuns#4858
 <!---
 macfun555/macfun555 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
